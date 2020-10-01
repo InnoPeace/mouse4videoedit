@@ -2,4 +2,4 @@
 
  ![](images/Mouse4VideoEdit.jpg)
 
- See the YouTube video at https://youtu.be/H1q_wCMCk9o# mouse4videoedit
+ See the YouTube video at https://youtu.be/H1q_wCMCk9o
